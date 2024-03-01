@@ -1,2 +1,2 @@
-# Lo-particular-a-lo-universal
+# LO PARTICULAR A LO UNIVERSAL
 Taller de hipervínculo y estructuras narrativas
