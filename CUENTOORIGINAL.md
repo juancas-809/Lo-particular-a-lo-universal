@@ -11,3 +11,4 @@
 -*¡¡Cronopio, no deberías derrochar así la pasta dentífrica!!*
 
 ---
+[RUTA 1](RUTA1)  -   [RUTA 2](RUTA2)
