@@ -1,4 +1,4 @@
-# [PÁGINA ANTERIOR](CUENTOORIGINAL)
+# [PÁGINA ANTERIOR](CUENTOORIGINAL.md)
 Ya que si desperdicias la pasta dentífrica podrías estar cometiendo un error que te perseguirá toda tu vida, ¿Acaso crees que todo en la vida es sencillo y que no tiene su nivel de complejidad?.
 
 Si continuas así tendremos que ponernos aún más serios, estos obsequios valen mucho dinero, los sombreros son de hace más de 40 años y fueron regalados por Jean-Michel Basquiat, un habilidoso, creativo y misterioso artista que falleció de una manera solitaria. Créeme la vas a pagar cronopio.
