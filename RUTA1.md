@@ -1,4 +1,4 @@
-# [PÁGINA ANTERIOR](CUENTOORIGINAL)
+# [PÁGINA ANTERIOR](CUENTOORIGINAL.md)
 Después de que las personas hablaron civilizadamente con el hombre, fueron a sus hogares ya que era bastante tarde, pero cuando ya estaban en sus casas, se dieron cuenta de que los sombreros estaban empezando a _derretirse_ desde el punto en el que había **pasta dental** en ellos.       
 Por ello al día siguiente fueron a la casa del hombre que les había arrojado pasta dental en conjunto, para reclamarle por el derretimiento de sus sombreros que eran un poco **costosos**, por lo cual necesitaban que el hombre les respondiera de alguna manera.     
 
